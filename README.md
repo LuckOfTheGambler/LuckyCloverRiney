@@ -1,3 +1,5 @@
+[gif](https://c.tenor.com/eXryLVmqBZAAAAAC/tenor.gif) 
+
 $${\color{limegreen}Introductions}$$
  
 - A.K.A. $${\color{cyan}Sora}$$ or $${\color{lightblue}Seira}$$
