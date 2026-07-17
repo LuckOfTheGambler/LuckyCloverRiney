@@ -1,4 +1,4 @@
-[gif](https://c.tenor.com/eXryLVmqBZAAAAAC/tenor.gif) 
+https://static0.srcdn.com/wordpress/wp-content/uploads/2024/03/honkai-star-rail-aventurine-materials-ascension-skills-farming.jpg
 
 $${\color{limegreen}Introductions}$$
  
