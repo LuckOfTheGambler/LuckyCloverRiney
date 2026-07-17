@@ -1,4 +1,4 @@
-content://com.android.chrome.FileProvider/images/screenshot/17842703074381900291965.jpg<img width="1400" height="700" alt="image" src="https://github.com/user-attachments/assets/f5a4c4ad-00ce-4c90-bd73-0ea869af0122" />
+<img width="1400" height="700" alt="image" src="https://github.com/user-attachments/assets/f5a4c4ad-00ce-4c90-bd73-0ea869af0122" />
 
 
 $${\color{limegreen}Introductions}$$
