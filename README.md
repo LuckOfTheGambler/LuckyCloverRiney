@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler&color=green )
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler&color=green&label=Lucky+Stars )
 </br>
 
 ♤  ♡  ◇  ♧ [Ata](https://luckyaventurine.atabook.org/) ♤  ♡  ◇  ♧
