@@ -1,5 +1,5 @@
 <p align="center">
- ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler)
 
 ♤ ♡ ◇ ♧ [Ata](https://luckyaventurine.atabook.org/) • [StrawPage](https://luckofthegambler.straw.page) ♤ ♡ ◇ ♧
 
