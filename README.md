@@ -1,9 +1,5 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler)
 
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=LLuckOfTheGambler" alt="Profile Views">
-</p>
-
 ♤ ♡ ◇ ♧ [Ata](https://luckyaventurine.atabook.org/) • [StrawPage](https://luckofthegambler.straw.page) ♤ ♡ ◇ ♧
 
 
