@@ -1,6 +1,6 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=LuckOfTheGambler)
 
-[Link Text]([https://example.com](https://luckyaventurine.atabook.org/))
+[Ata](https://luckyaventurine.atabook.org/)
 
 
 <img width="1400" height="700" alt="image" src="https://github.com/user-attachments/assets/f5a4c4ad-00ce-4c90-bd73-0ea869af0122" />
