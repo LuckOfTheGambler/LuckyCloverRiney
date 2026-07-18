@@ -21,7 +21,3 @@ Extras???
 - This user is also socially awkward, never interacts first and may reply dryly or stupidly according to their mood (I.g.: If they just woke up or if they're hungry). This user usually sit around friends and could be friendly, They don't bite I promise :'(.
 
 - This user belongs to multiple fandoms, and even if they may or may not cosplay them, they do like certain animes/shows/games.
-
-- This user likes to create OC's and pair them with a canon character, (or to Yumeship), and would never push their yumeship to be liked or favored, especially by people who they don't know.
-
-- This user does not associate themselves to the toxicity of certain fandoms because of a certain (former) bird app and its loud minority of vocal warfreaks.
