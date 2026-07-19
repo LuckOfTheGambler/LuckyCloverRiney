@@ -20,6 +20,8 @@ Extras???
 
 - This user is also socially awkward, never interacts first and may reply dryly or stupidly according to their mood (I.g.: If they just woke up or if they're hungry). This user usually sit around friends and could be friendly, They don't bite I promise :'(.
 
+- ^ This user also socially conscious and a huge overthinker, and they may think too much and puts action quickly before things gets worse on their end. Their trying hard.
+
 - This user belongs to multiple fandoms, and even if they may or may not cosplay them, they do like certain animes/shows/games.
 
 - This user likes signing Ata of others with compliments, positivity (I.g.: virtual hugs, take care and stay safe), and silliness/randomness/whimsy. This user don't sign Ata (even SP) of problematic users/players and even their mutual's Ata, yk who you are :/.
