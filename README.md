@@ -7,6 +7,9 @@
 <img width="1400" height="700" alt="image" src="https://github.com/user-attachments/assets/f5a4c4ad-00ce-4c90-bd73-0ea869af0122" />
 </br>
 
+" ʟɪғᴇ ᴡᴏᴜʟᴅ ʙᴇ ᴏ̨ᴜɪᴛᴇ ᴅᴜʟʟ ɪғ ɪᴛ ᴡᴇʀᴇ ᴊᴜsᴛ ᴀɴ ᴜɴᴇɴᴅɪɴɢ sᴇʀɪᴇs ᴏғ ᴡɪɴs, ᴡᴏᴜʟᴅɴ'ᴛ ɪᴛ? "
+~Aventurine
+
 
 $${\color{limegreen}Introductions}$$
  
